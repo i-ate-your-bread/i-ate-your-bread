@@ -22,3 +22,5 @@
 
 
 <p align="center"> thx for reading everything .ᐟ (at least I think u did?) </p> 
+
+<p align="center"> my discord is moonii_whyyyy if u ever need to contact me </p> 

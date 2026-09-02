@@ -1,6 +1,6 @@
 <p align="center"> $\color{purple}{\text{𑣲𝄞 }}$ </p>
 
-![Alt text](https://files.catbox.moe/h9qod2.png)
+![Alt text](https://files.catbox.moe/630z63.png)
 
 <p align="center"> $\color{blue}{\text{⋆ ˖  ⁺ ‧₊ 𓆩──୨ৎ── ⋆⋅ ཐི༏ཋྀ⋅⋆ ──୨ৎ──𓆪 ₊‧ ⁺  ˖ ⋆}}$ </p> </p>
 

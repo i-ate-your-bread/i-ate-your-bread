@@ -1,6 +1,7 @@
 <p align="center"> $\color{purple}{\text{𑣲𝄞 }}$ </p>
 
-![Alt text](https://files.catbox.moe/0wip1e.png)
+![Alt text](https://files.catbox.moe/h9qod2.png)
+
 <p align="center"> $\color{blue}{\text{⋆ ˖  ⁺ ‧₊ 𓆩──୨ৎ── ⋆⋅ ཐི༏ཋྀ⋅⋆ ──୨ৎ──𓆪 ₊‧ ⁺  ˖ ⋆}}$ </p> </p>
 
 <p align="center"> $\color{blue}{\text{☾。𑣲𝓜𝓸𝓸𝓷𝓲𝓲 ┆ 𝓽𝓼𝓾𝓴𝓲ᛝ ᯓ★}}$ </p> </p>
@@ -19,7 +20,7 @@
 
 <p align="center"> $\color{lightblue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
 
- ![Alt text](https://files.catbox.moe/wya7fc.jpeg)
+![Alt text](https://files.catbox.moe/5mulaw.png) 
 
 <p align="center"> thx for reading everything! (at least I think u did?)</p>
 

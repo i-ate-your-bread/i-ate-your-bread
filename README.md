@@ -20,12 +20,3 @@
 
 <p align="center"> $\color{lightblue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
 
-![Alt text](https://files.catbox.moe/5mulaw.png) 
-
-<p align="center"> thx for reading everything! (at least I think u did?)</p>
-
-<p align="center">my discord is moonii_whyyyy if u ever need to contact me </p>
-
-<p align="center"> pls know that i lowkey have huge social anxiety and shyness so if we’re talking you’ll most likely be carrying the conversation unless your as awkward as me (ᵕ—ᴗ—)</p>
-
-<p align="center"> this look weird on dark mode T u T</p>

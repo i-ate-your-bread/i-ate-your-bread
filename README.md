@@ -1,4 +1,4 @@
-<p align="center"> $\color{lightblue}{\text{𑣲𝄞 }}$ </p>
+<p align="center"> $\color{lightblue}{\text{𑣲𝄞}}$ </p>
 
 ![Alt text](https://files.catbox.moe/v2f8dj.gif)
 
@@ -18,5 +18,5 @@
 
 <p align="center"> $\color{blue}{\text{ ₊⊹𝚂𝚑𝚘𝚛𝚎𝚔𝚎𝚎𝚙𝚎𝚛,𝚆𝚑𝚒𝚝𝚎 𝚕𝚒𝚕𝚢 𝚊𝚗𝚍 𝚏𝚛𝚒𝚎𝚛𝚎𝚗 𝚔𝚒𝚗𝚗𝚒𝚎 ⭑ᐟ }}$ </p>
 
-<p align="center"> $\color{lightblue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
+<p align="center"> $\color{blue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
 

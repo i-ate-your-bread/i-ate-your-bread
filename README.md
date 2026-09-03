@@ -6,8 +6,6 @@
 
 <p align="center"> $\color{blue}{\text{☾。𑣲𝓜𝓸𝓸𝓷𝓲𝓲 ┆ 𝓽𝓼𝓾𝓴𝓲ᛝ ᯓ★}}$ </p> </p>
 
-
-
 <p align="center"> $\color{blue}{\text{𐙚𝕊𝕙𝕖 ⌗ 𝕙𝕖𝕣◞ 𝕀𝕟𝕗𝕡 ┆ 𝟡᭙𝟙◞ 𝕊𝕖𝕝𝕖𝕔𝕥𝕣𝕠𝕧𝕖𝕣𝕥◞ 𝕊𝕥𝕣𝕒𝕚𝕘𝕙𝕥-𝕒𝕔𝕖◞ 𝔹𝕕𝕒𝕪 𝕕𝕖𝕔 𝟙𝟟꣑ৎ }}$ </p>
 
 <p align="center"> $\color{blue}{\text{ ᴅɴɪ ⋮ ɪғ ᴜʀ ᴀᴘʜᴏʙɪᴄ◞ ʜᴏᴍᴏᴘʜᴏʙɪᴄ◞ ᴜɴᴅᴇʀ 𝟷𝟹 ᴏʀ ᴏᴠᴇʀ 𝟸𝟻◞ ᴀ ᴋᴜʀᴏʙᴏᴛ/ʜᴏʏᴏsʜɪʟʟ◞ ʙᴀsɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ。}}$ </p>
@@ -20,4 +18,6 @@
 
 <p align="center"> $\color{blue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
 
-<p align="center"> $\color{lightblue}{\text{   𑣲𝄞 }}$ </p>
+![Alt text](https://files.catbox.moe/630z63.png)
+
+

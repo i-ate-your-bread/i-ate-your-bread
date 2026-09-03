@@ -1,4 +1,4 @@
-<p align="center"> $\color{purple}{\text{𑣲𝄞 }}$ </p>
+<p align="center"> $\color{lightblue}{\text{𑣲𝄞 }}$ </p>
 
 ![Alt text](https://files.catbox.moe/630z63.png)
 

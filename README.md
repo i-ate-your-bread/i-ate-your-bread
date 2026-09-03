@@ -18,6 +18,6 @@
 
 <p align="center"> $\color{blue}{\text{ ᴮᵉ ᵒᵒᵐᶠ, ⁱ ᵖʳᵒᵐⁱˢᵉ ⁱ ᵈᵒⁿᵗ ᵇⁱᵗᵉ .ᐟ }}$ </p>
 
-![Alt text](https://files.catbox.moe/630z63.png)
+![Alt text](https://files.catbox.moe/4i2gwi.jpeg) - monthly sk post
 
 
